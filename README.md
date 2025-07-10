@@ -1,5 +1,3 @@
 # visionary-ai-first-
 
-iam aksh
-iam dharan
-akash gay
+Hi this is a repoding by 3 friends 
